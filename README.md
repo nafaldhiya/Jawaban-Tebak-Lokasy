@@ -4,7 +4,7 @@ Sesuai Urutan
 1. Mexico
 2. UK
 3. Mama miaa, u don know italia? mamâ miaa 🤌
-4. Prancis 'Quaso not kroisan'
+4. Prancis 'Remember its Quaso not kroisan'
 5. Scotlandia
 6. 'Firaun'
 7. Archduke mati malah PD1 (Hungaria)
@@ -15,7 +15,7 @@ Sesuai Urutan
 12. "Our" Country (Rusia)
 13. Irlandia
 14. el Matador de Español (Spanyol)
-15. Amerika, f*** yeah
-16. Ze Axis? Ze Deutschland (Jerman)
+15. Amerika, f*** YEAH!
+16. Ze Axis? Ze Deutschland! (Jerman)
 17. Hmmmm
 18. Kolombia, Venezuela
